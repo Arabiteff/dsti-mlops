@@ -1,3 +1,3 @@
 # dsti-mlops
 study
-sdadasdf4sdfsdfddsf ds rewrkweoptkgperoihguijrejhgepojg;ljogkf
+sdadasdf4sdfsdfddsf ds rewrkweoptkgperoihguijrejhgepojg;ljogkffdg
