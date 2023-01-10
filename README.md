@@ -1,3 +1,3 @@
 # dsti-mlops
-study
+study\
 sdadasdf4sdfsdfddsf ds rewrkweoptkgperoihguijrejhgepojg;ljogkffdg
