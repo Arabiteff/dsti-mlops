@@ -1,3 +1,3 @@
 # dsti-mlops
 study
-azrizjerzet
+dev-arabi
